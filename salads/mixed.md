@@ -4,7 +4,7 @@
 ## Ingredients
 
 - **4 cups** mixed greens (such as arugula, spinach, and romaine)
-- **1/2 cup** cherry tomatoes, halved
+- **1 cup** cherry tomatoes, halved
 - **1/4 cup** sliced cucumbers
 - **14 cup** shredded carrots
 - **1/4 cup** toasted nuts (almonds, walnuts, or pecans), optional
